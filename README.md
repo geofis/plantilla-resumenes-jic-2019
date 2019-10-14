@@ -1,9 +1,10 @@
 # TÍTULO
 
-*XVIII Jornada de Investigación Científica*
+*XVIII Jornada de Investigación Científica, UASD*
 
 *12, 13 y 14 de noviembre, 2019*
 
+*Santo Domingo, República Dominicana*
 
 **Sometimiento de resumen**
 
